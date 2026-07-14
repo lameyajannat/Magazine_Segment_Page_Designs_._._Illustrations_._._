@@ -1,1 +1,1 @@
-# Magazine_Segment_Page_Designs_._._Illustrations_._._
+# Magazine_Page_Designs_._._Illustrations_._._
